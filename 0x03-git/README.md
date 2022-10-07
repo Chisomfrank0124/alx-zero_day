@@ -1,1 +1,1 @@
-I love this skill
+dont scatter your work ignorantly
